@@ -22,10 +22,10 @@ footer-links:
   facebook:
   flickr:
   github: 
-  instagram:
+  instagram: barbararstewart
   linkedin:
   pinterest:
-  rss: # just type anything here for a working RSS icon, make sure you set the "url" above!
+  rss: true # just type anything here for a working RSS icon, make sure you set the "url" above!
   twitter: #jekyllrb
   stackoverflow: # your stackoverflow profile, e.g. "users/50476/bart-kiers"
   youtube: # channel/<your_long_string> or user/<user-name>
@@ -35,7 +35,7 @@ google_analytics:
 
 # Your website URL (e.g. http://barryclark.github.io or http://www.barryclark.co)
 # Used for Sitemap.xml and your RSS feed
-url:
+url: https://holein.github.io
 
 # If you're hosting your site at a Project repository on GitHub pages
 # (http://yourusername.github.io/repository-name)
@@ -62,6 +62,8 @@ sass:
 gems:
   - jekyll-sitemap # Create a sitemap using the official Jekyll sitemap gem
   - jekyll-paginate
+  - jekyll-seo-tag
+  - jekyll-feed
 
 # Exclude these files from your production _site
 exclude:
