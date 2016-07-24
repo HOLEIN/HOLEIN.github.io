@@ -1,0 +1,38 @@
+---
+layout: default
+---
+<article class="post">
+  <h1>{{ page.title }}</h1>
+  {% if page.tags.size > 0%}<b>Tag：</b>{% for tag in page.tags %}{% if tag != "" %}<a href="/tags/#{{ tag }}"><i>{{ tag }}</i></a>{% if forloop.index != page.tags.size %}, {% endif %}{% endif %}{% endfor %}{% endif %}
+  <span class="entry-categories"><a href="{{ site.url }}/{{ page.category-url }}/" rel="category">{{ page.category }}</a></span>
+  <div class="entry">
+    {{ content }}
+  </div>
+
+  <div class="date">
+    Written on {{ page.date | date:"%Y-%m-%d" }}
+  </div>
+  <!-- next and previous -->
+<div style="margin-top:15px; margin-bottom:10px">
+  {%if page.previous%}
+  <span class="next">
+    Prev：
+    <a href="{{page.previous.url}}">
+      {{page.previous.title}}
+    </a>
+  </span>
+  {%endif%} 
+  {%if page.next%}
+  <div style="float:right">
+  <span class="prev" >
+    Next：
+    <a href="{{page.next.url}}">
+      {{page.next.title}}
+    </a>
+  </span>
+  </div>
+  {%endif%}
+</div>
+<hr>
+
+</article>
