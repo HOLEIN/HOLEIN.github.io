@@ -70,4 +70,38 @@ exclude:
     - LICENSE
     - README.md
 paginate: 10
-paginate_path: "page:num"      
+paginate_path: "page:num"
+
+collections:
+  my_tags:
+    output: true
+    permalink: /tag/:name/
+  my_categories:
+    output: true
+    permalink: /category/:name/
+
+defaults:
+  -
+    scope:
+      path: ""
+      type: pages
+    values:
+      layout: page
+  -
+    scope:
+      path: ""
+      type: posts
+    values:
+      layout: post
+  -
+    scope:
+      path: ""
+      type: my_categories
+    values:
+      layout: category
+  -
+    scope:
+      path: ""
+      type: my_tags
+    values:
+      layout: tag
