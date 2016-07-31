@@ -1,0 +1,15 @@
+---
+layout: post
+date: '2014-10-21'
+title: "Vera Wang Delany"
+category: Vera Wang
+tags: [Vera Wang]
+---
+### Vera Wang Delany
+Just **$279.99**
+### 
+
+<a href="https://www.readybrides.com/en/vera-wang/4111-vera-wang-delany.html"><img src="http://static.msromantic.com/8189/vera-wang-delany.jpg" alt="Vera Wang Delany" style="width:100%;" /></a>
+
+<!-- break -->
+Buy it: [https://www.readybrides.com/en/vera-wang/4111-vera-wang-delany.html](https://www.readybrides.com/en/vera-wang/4111-vera-wang-delany.html)
