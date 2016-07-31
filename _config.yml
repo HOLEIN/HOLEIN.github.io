@@ -81,6 +81,9 @@ collections:
   my_categories:
     output: true
     permalink: /category/:name/
+  my_date:
+    output: true
+    permalink: /archives/:name/
 
 defaults:
   -
@@ -107,3 +110,9 @@ defaults:
       type: my_tags
     values:
       layout: tag
+  -
+    scope:
+      path: ""
+      type: my_date
+    values:
+      layout: archive

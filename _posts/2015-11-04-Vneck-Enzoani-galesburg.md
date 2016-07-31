@@ -1,0 +1,15 @@
+---
+layout: post
+date: '2015-11-04'
+title: "V-neck Enzoani galesburg"
+category: V-neck
+tags: [V-neck]
+---
+### V-neck Enzoani galesburg
+Just **$279.99**
+### 
+
+<a href="https://www.readybrides.com/en/v-neck/5479-enzoani-galesburg.html"><img src="http://img.antebrands.com/11859/enzoani-galesburg.jpg" alt="Enzoani galesburg" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/v-neck/5479-enzoani-galesburg.html"><img src="http://img.antebrands.com/11857/enzoani-galesburg.jpg" alt="Enzoani galesburg" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/v-neck/5479-enzoani-galesburg.html](https://www.readybrides.com/en/v-neck/5479-enzoani-galesburg.html)
