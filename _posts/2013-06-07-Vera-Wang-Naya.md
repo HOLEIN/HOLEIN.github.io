@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4137-vera-wang-naya.html"><img src="http://static.msromantic.com/8215/vera-wang-naya.jpg" alt="Vera Wang Naya" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4137-vera-wang-naya.html"><img src="//static.msromantic.com/8215/vera-wang-naya.jpg" alt="Vera Wang Naya" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4137-vera-wang-naya.html](https://www.readybrides.com/en/vera-wang/4137-vera-wang-naya.html)

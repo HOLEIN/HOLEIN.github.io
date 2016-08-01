@@ -9,7 +9,7 @@ tags: [Camille La Vie]
 Just **$149.99**
 ### 
 
-<a href="https://www.readybrides.com/en/camille-la-vie/10137-camille-la-vie-jersey-and-arcadia-dress.html"><img src="http://static.msromantic.com//camille-la-vie-jersey-and-arcadia-dress.jpg" alt="Camille La Vie Jersey and Arcadia Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/camille-la-vie/10137-camille-la-vie-jersey-and-arcadia-dress.html"><img src="//static.msromantic.com//camille-la-vie-jersey-and-arcadia-dress.jpg" alt="Camille La Vie Jersey and Arcadia Dress" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/camille-la-vie/10137-camille-la-vie-jersey-and-arcadia-dress.html](https://www.readybrides.com/en/camille-la-vie/10137-camille-la-vie-jersey-and-arcadia-dress.html)

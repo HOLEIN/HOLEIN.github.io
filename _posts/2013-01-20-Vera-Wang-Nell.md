@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4138-vera-wang-nell.html"><img src="http://static.msromantic.com/8216/vera-wang-nell.jpg" alt="Vera Wang Nell" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4138-vera-wang-nell.html"><img src="//static.msromantic.com/8216/vera-wang-nell.jpg" alt="Vera Wang Nell" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4138-vera-wang-nell.html](https://www.readybrides.com/en/vera-wang/4138-vera-wang-nell.html)

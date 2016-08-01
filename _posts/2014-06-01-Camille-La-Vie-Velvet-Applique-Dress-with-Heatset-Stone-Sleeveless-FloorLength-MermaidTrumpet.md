@@ -9,7 +9,7 @@ tags: [Camille La Vie,Mermaid/Trumpet,Scoop Neck,Illusion,Floor-Length,Sleeveles
 Just **$199.99**
 ###   Sleeveless Floor-Length Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Camille La Vie</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>Scoop Neck,Illusion</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/camille-la-vie/10160-camille-la-vie-velvet-applique-dress-with-heatset-stone.html"><img src="http://static.msromantic.com/23283/camille-la-vie-velvet-applique-dress-with-heatset-stone.jpg" alt="Camille La Vie Velvet Applique Dress with Heatset Stone" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/camille-la-vie/10160-camille-la-vie-velvet-applique-dress-with-heatset-stone.html"><img src="//static.msromantic.com/23283/camille-la-vie-velvet-applique-dress-with-heatset-stone.jpg" alt="Camille La Vie Velvet Applique Dress with Heatset Stone" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/camille-la-vie/10160-camille-la-vie-velvet-applique-dress-with-heatset-stone.html"><img src="http://static.msromantic.com/23282/camille-la-vie-velvet-applique-dress-with-heatset-stone.jpg" alt="Camille La Vie Velvet Applique Dress with Heatset Stone" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/camille-la-vie/10160-camille-la-vie-velvet-applique-dress-with-heatset-stone.html"><img src="//static.msromantic.com/23282/camille-la-vie-velvet-applique-dress-with-heatset-stone.jpg" alt="Camille La Vie Velvet Applique Dress with Heatset Stone" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/camille-la-vie/10160-camille-la-vie-velvet-applique-dress-with-heatset-stone.html](https://www.readybrides.com/en/camille-la-vie/10160-camille-la-vie-velvet-applique-dress-with-heatset-stone.html)

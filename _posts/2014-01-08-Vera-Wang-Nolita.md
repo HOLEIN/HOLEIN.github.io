@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4146-vera-wang-nolita.html"><img src="http://static.msromantic.com/8224/vera-wang-nolita.jpg" alt="Vera Wang Nolita" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4146-vera-wang-nolita.html"><img src="//static.msromantic.com/8224/vera-wang-nolita.jpg" alt="Vera Wang Nolita" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4146-vera-wang-nolita.html](https://www.readybrides.com/en/vera-wang/4146-vera-wang-nolita.html)

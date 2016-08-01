@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4099-vera-wang-odelle.html"><img src="http://static.msromantic.com/8177/vera-wang-odelle.jpg" alt="Vera Wang Odelle" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4099-vera-wang-odelle.html"><img src="//static.msromantic.com/8177/vera-wang-odelle.jpg" alt="Vera Wang Odelle" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4099-vera-wang-odelle.html](https://www.readybrides.com/en/vera-wang/4099-vera-wang-odelle.html)

@@ -9,7 +9,7 @@ tags: [V-neck]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/v-neck/5479-enzoani-galesburg.html"><img src="http://static.msromantic.com/11859/enzoani-galesburg.jpg" alt="Enzoani galesburg" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/v-neck/5479-enzoani-galesburg.html"><img src="//static.msromantic.com/11859/enzoani-galesburg.jpg" alt="Enzoani galesburg" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/v-neck/5479-enzoani-galesburg.html"><img src="http://static.msromantic.com/11857/enzoani-galesburg.jpg" alt="Enzoani galesburg" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/v-neck/5479-enzoani-galesburg.html"><img src="//static.msromantic.com/11857/enzoani-galesburg.jpg" alt="Enzoani galesburg" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/v-neck/5479-enzoani-galesburg.html](https://www.readybrides.com/en/v-neck/5479-enzoani-galesburg.html)

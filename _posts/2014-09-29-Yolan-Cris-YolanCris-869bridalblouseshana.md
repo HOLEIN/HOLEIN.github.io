@@ -9,7 +9,7 @@ tags: [Yolan Cris]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yolan-cris/13918-yolancris-869-bridal-blouse-shana.html"><img src="http://static.msromantic.com/31769/yolancris-869-bridal-blouse-shana.jpg" alt="YolanCris  869-bridal-blouse-shana" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/yolan-cris/13918-yolancris-869-bridal-blouse-shana.html"><img src="//static.msromantic.com/31769/yolancris-869-bridal-blouse-shana.jpg" alt="YolanCris  869-bridal-blouse-shana" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/yolan-cris/13918-yolancris-869-bridal-blouse-shana.html](https://www.readybrides.com/en/yolan-cris/13918-yolancris-869-bridal-blouse-shana.html)

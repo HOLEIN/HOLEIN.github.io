@@ -9,8 +9,8 @@ tags: [Amelia Sposa,Ballgown,Two Piece Wedding Dress ,Illusion,Chapel Train,Slee
 Just **$299.99**
 ###   Sleeveless Chapel Train Ballgown Two Piece Wedding Dress 
 <table><tr><td>BRANDS</td><td>Amelia Sposa</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Trend</td><td>Two Piece Wedding Dress </td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/amelia-sposa/383-wedding-dress-monica.html"><img src="http://static.msromantic.com/1425/wedding-dress-monica.jpg" alt="Wedding dress Monica" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/amelia-sposa/383-wedding-dress-monica.html"><img src="//static.msromantic.com/1425/wedding-dress-monica.jpg" alt="Wedding dress Monica" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/amelia-sposa/383-wedding-dress-monica.html"><img src="http://static.msromantic.com/1426/wedding-dress-monica.jpg" alt="Wedding dress Monica" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/amelia-sposa/383-wedding-dress-monica.html"><img src="http://static.msromantic.com/1424/wedding-dress-monica.jpg" alt="Wedding dress Monica" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/amelia-sposa/383-wedding-dress-monica.html"><img src="//static.msromantic.com/1426/wedding-dress-monica.jpg" alt="Wedding dress Monica" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/amelia-sposa/383-wedding-dress-monica.html"><img src="//static.msromantic.com/1424/wedding-dress-monica.jpg" alt="Wedding dress Monica" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/amelia-sposa/383-wedding-dress-monica.html](https://www.readybrides.com/en/amelia-sposa/383-wedding-dress-monica.html)

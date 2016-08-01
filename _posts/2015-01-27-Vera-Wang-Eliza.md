@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4115-vera-wang-eliza.html"><img src="http://static.msromantic.com/8193/vera-wang-eliza.jpg" alt="Vera Wang Eliza" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4115-vera-wang-eliza.html"><img src="//static.msromantic.com/8193/vera-wang-eliza.jpg" alt="Vera Wang Eliza" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4115-vera-wang-eliza.html](https://www.readybrides.com/en/vera-wang/4115-vera-wang-eliza.html)

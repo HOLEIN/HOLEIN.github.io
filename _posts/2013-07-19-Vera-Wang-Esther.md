@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4116-vera-wang-esther.html"><img src="http://static.msromantic.com/8194/vera-wang-esther.jpg" alt="Vera Wang Esther" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4116-vera-wang-esther.html"><img src="//static.msromantic.com/8194/vera-wang-esther.jpg" alt="Vera Wang Esther" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4116-vera-wang-esther.html](https://www.readybrides.com/en/vera-wang/4116-vera-wang-esther.html)

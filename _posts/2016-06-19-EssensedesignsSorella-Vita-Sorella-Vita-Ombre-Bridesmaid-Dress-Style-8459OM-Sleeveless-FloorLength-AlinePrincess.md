@@ -9,7 +9,7 @@ tags: [Essensedesigns-Sorella Vita,Aline/Princess ,Illusion,Floor-Length,Sleevel
 Just **$229.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Essensedesigns-Sorella Vita</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/essensedesigns-sorella-vita/13672-sorella-vita-ombre-bridesmaid-dress-style-8459om.html"><img src="http://static.msromantic.com/31194/sorella-vita-ombre-bridesmaid-dress-style-8459om.jpg" alt="Sorella Vita Ombre Bridesmaid Dress Style 8459OM" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/essensedesigns-sorella-vita/13672-sorella-vita-ombre-bridesmaid-dress-style-8459om.html"><img src="//static.msromantic.com/31194/sorella-vita-ombre-bridesmaid-dress-style-8459om.jpg" alt="Sorella Vita Ombre Bridesmaid Dress Style 8459OM" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/essensedesigns-sorella-vita/13672-sorella-vita-ombre-bridesmaid-dress-style-8459om.html](https://www.readybrides.com/en/essensedesigns-sorella-vita/13672-sorella-vita-ombre-bridesmaid-dress-style-8459om.html)

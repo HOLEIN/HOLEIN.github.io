@@ -9,7 +9,7 @@ tags: [Antonio Riva]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/antonio-riva/6187-antonio-riva-camilla.html"><img src="http://static.msromantic.com/13244/antonio-riva-camilla.jpg" alt="Antonio Riva CAMILLA" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/antonio-riva/6187-antonio-riva-camilla.html"><img src="//static.msromantic.com/13244/antonio-riva-camilla.jpg" alt="Antonio Riva CAMILLA" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/antonio-riva/6187-antonio-riva-camilla.html](https://www.readybrides.com/en/antonio-riva/6187-antonio-riva-camilla.html)

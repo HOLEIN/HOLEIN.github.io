@@ -9,7 +9,7 @@ tags: [Camille La Vie,Sheath/Column,Plus Size,One shoulder,Ankle-Length,Sleevele
 Just **$269.99**
 ###   Sleeveless Ankle-Length Sheath/Column Plus Size
 <table><tr><td>BRANDS</td><td>Camille La Vie</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Trend</td><td>Plus Size</td></tr><tr><td>Neckline</td><td>One shoulder</td></tr><tr><td>Hemline/Train</td><td>Ankle-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/camille-la-vie/10284-camille-la-vie-jersey-drape-dress-with-ruched-bodice.html"><img src="http://static.msromantic.com/23547/camille-la-vie-jersey-drape-dress-with-ruched-bodice.jpg" alt="Camille La Vie Jersey Drape Dress with Ruched Bodice" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/camille-la-vie/10284-camille-la-vie-jersey-drape-dress-with-ruched-bodice.html"><img src="//static.msromantic.com/23547/camille-la-vie-jersey-drape-dress-with-ruched-bodice.jpg" alt="Camille La Vie Jersey Drape Dress with Ruched Bodice" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/camille-la-vie/10284-camille-la-vie-jersey-drape-dress-with-ruched-bodice.html"><img src="http://static.msromantic.com/23546/camille-la-vie-jersey-drape-dress-with-ruched-bodice.jpg" alt="Camille La Vie Jersey Drape Dress with Ruched Bodice" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/camille-la-vie/10284-camille-la-vie-jersey-drape-dress-with-ruched-bodice.html"><img src="//static.msromantic.com/23546/camille-la-vie-jersey-drape-dress-with-ruched-bodice.jpg" alt="Camille La Vie Jersey Drape Dress with Ruched Bodice" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/camille-la-vie/10284-camille-la-vie-jersey-drape-dress-with-ruched-bodice.html](https://www.readybrides.com/en/camille-la-vie/10284-camille-la-vie-jersey-drape-dress-with-ruched-bodice.html)

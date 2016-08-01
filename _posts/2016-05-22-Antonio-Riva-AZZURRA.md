@@ -9,7 +9,7 @@ tags: [Antonio Riva]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/antonio-riva/6310-antonio-riva-azzurra.html"><img src="http://static.msromantic.com/13367/antonio-riva-azzurra.jpg" alt="Antonio Riva AZZURRA" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/antonio-riva/6310-antonio-riva-azzurra.html"><img src="//static.msromantic.com/13367/antonio-riva-azzurra.jpg" alt="Antonio Riva AZZURRA" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/antonio-riva/6310-antonio-riva-azzurra.html](https://www.readybrides.com/en/antonio-riva/6310-antonio-riva-azzurra.html)

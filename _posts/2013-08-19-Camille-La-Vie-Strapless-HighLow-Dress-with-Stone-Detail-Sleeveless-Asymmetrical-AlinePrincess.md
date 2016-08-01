@@ -9,7 +9,7 @@ tags: [Camille La Vie,Aline/Princess ,Strapless,Asymmetrical,Sleeveless]
 Just **$209.99**
 ###   Sleeveless Asymmetrical Aline/Princess  
 <table><tr><td>BRANDS</td><td>Camille La Vie</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Asymmetrical</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/camille-la-vie/10128-camille-la-vie-strapless-high-low-dress-with-stone-detail.html"><img src="http://static.msromantic.com/23217/camille-la-vie-strapless-high-low-dress-with-stone-detail.jpg" alt="Camille La Vie Strapless High-Low Dress with Stone Detail" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/camille-la-vie/10128-camille-la-vie-strapless-high-low-dress-with-stone-detail.html"><img src="//static.msromantic.com/23217/camille-la-vie-strapless-high-low-dress-with-stone-detail.jpg" alt="Camille La Vie Strapless High-Low Dress with Stone Detail" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/camille-la-vie/10128-camille-la-vie-strapless-high-low-dress-with-stone-detail.html](https://www.readybrides.com/en/camille-la-vie/10128-camille-la-vie-strapless-high-low-dress-with-stone-detail.html)

@@ -9,7 +9,7 @@ tags: [The Dessy Group]
 Just **$169.99**
 ### 
 
-<a href="https://www.readybrides.com/en/the-dessy-group/12981-the-dessy-group-alfred-sung-style-d656.html"><img src="http://static.msromantic.com//the-dessy-group-alfred-sung-style-d656.jpg" alt="Dessy - Alfred Sung Style D656" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/the-dessy-group/12981-the-dessy-group-alfred-sung-style-d656.html"><img src="//static.msromantic.com//the-dessy-group-alfred-sung-style-d656.jpg" alt="Dessy - Alfred Sung Style D656" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/the-dessy-group/12981-the-dessy-group-alfred-sung-style-d656.html](https://www.readybrides.com/en/the-dessy-group/12981-the-dessy-group-alfred-sung-style-d656.html)

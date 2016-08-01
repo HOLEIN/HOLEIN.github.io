@@ -9,7 +9,7 @@ tags: [Antonio Riva,Sheath/Column,Sweetheart,Floor-Length,Sleeveless]
 Just **$289.99**
 ###   Sleeveless Floor-Length Sheath/Column 
 <table><tr><td>BRANDS</td><td>Antonio Riva</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/antonio-riva/6031-antonio-riva-cs121.html"><img src="http://static.msromantic.com/13088/antonio-riva-cs121.jpg" alt="Antonio Riva CS_121" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/antonio-riva/6031-antonio-riva-cs121.html"><img src="//static.msromantic.com/13088/antonio-riva-cs121.jpg" alt="Antonio Riva CS_121" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/antonio-riva/6031-antonio-riva-cs121.html](https://www.readybrides.com/en/antonio-riva/6031-antonio-riva-cs121.html)

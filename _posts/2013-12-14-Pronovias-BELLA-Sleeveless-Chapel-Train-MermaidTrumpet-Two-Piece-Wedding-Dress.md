@@ -9,8 +9,8 @@ tags: [Pronovias,Mermaid/Trumpet,Two Piece Wedding Dress ,Sweetheart,Chapel Trai
 Just **$289.99**
 ###   Sleeveless Chapel Train Mermaid/Trumpet Two Piece Wedding Dress 
 <table><tr><td>BRANDS</td><td>Pronovias</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Trend</td><td>Two Piece Wedding Dress </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr><tr><td>Fabric</td><td>Tulle</td></tr></table>
-<a href="https://www.readybrides.com/en/pronovias/4281-pronovias-bella.html"><img src="http://static.msromantic.com/8620/pronovias-bella.jpg" alt="Pronovias BELLA" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/pronovias/4281-pronovias-bella.html"><img src="//static.msromantic.com/8620/pronovias-bella.jpg" alt="Pronovias BELLA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/pronovias/4281-pronovias-bella.html"><img src="http://static.msromantic.com/8621/pronovias-bella.jpg" alt="Pronovias BELLA" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/pronovias/4281-pronovias-bella.html"><img src="http://static.msromantic.com/8619/pronovias-bella.jpg" alt="Pronovias BELLA" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/pronovias/4281-pronovias-bella.html"><img src="//static.msromantic.com/8621/pronovias-bella.jpg" alt="Pronovias BELLA" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/pronovias/4281-pronovias-bella.html"><img src="//static.msromantic.com/8619/pronovias-bella.jpg" alt="Pronovias BELLA" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/pronovias/4281-pronovias-bella.html](https://www.readybrides.com/en/pronovias/4281-pronovias-bella.html)

@@ -9,7 +9,7 @@ tags: [Alessandro Angelozzi,Alessandro Angelozzi ,Mermaid/Trumpet,Straps,Chapel 
 Just **$289.99**
 ###   Sleeveless Chapel Train Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Alessandro Angelozzi </td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>Straps</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/alessandro-angelozzi/13979-alessandro-angelozzi-8.html"><img src="http://static.msromantic.com/31830/alessandro-angelozzi-8.jpg" alt="Alessandro Angelozzi 8" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/alessandro-angelozzi/13979-alessandro-angelozzi-8.html"><img src="//static.msromantic.com/31830/alessandro-angelozzi-8.jpg" alt="Alessandro Angelozzi 8" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/alessandro-angelozzi/13979-alessandro-angelozzi-8.html](https://www.readybrides.com/en/alessandro-angelozzi/13979-alessandro-angelozzi-8.html)

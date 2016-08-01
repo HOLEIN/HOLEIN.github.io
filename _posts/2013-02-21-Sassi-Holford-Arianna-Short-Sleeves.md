@@ -9,7 +9,7 @@ tags: [Sassi Holford,Short Sleeves]
 Just **$329.99**
 ###   Short Sleeves   
 <table><tr><td>BRANDS</td><td>Sassi Holford</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/sassi-holford/2721-sassi-holford-arianna.html"><img src="http://static.msromantic.com/3986/sassi-holford-arianna.jpg" alt="Sassi Holford Arianna" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/sassi-holford/2721-sassi-holford-arianna.html"><img src="//static.msromantic.com/3986/sassi-holford-arianna.jpg" alt="Sassi Holford Arianna" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sassi-holford/2721-sassi-holford-arianna.html"><img src="http://static.msromantic.com/3985/sassi-holford-arianna.jpg" alt="Sassi Holford Arianna" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/sassi-holford/2721-sassi-holford-arianna.html"><img src="//static.msromantic.com/3985/sassi-holford-arianna.jpg" alt="Sassi Holford Arianna" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/sassi-holford/2721-sassi-holford-arianna.html](https://www.readybrides.com/en/sassi-holford/2721-sassi-holford-arianna.html)

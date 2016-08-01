@@ -9,7 +9,7 @@ tags: [Pronovias,Mermaid/Trumpet,Illusion,Ankle-Length,Sleeveless]
 Just **$299.99**
 ###   Sleeveless Ankle-Length Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Pronovias</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Ankle-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/pronovias/4427-pronovias-adika.html"><img src="http://static.msromantic.com/8975/pronovias-adika.jpg" alt="Pronovias ADIKA" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/pronovias/4427-pronovias-adika.html"><img src="//static.msromantic.com/8975/pronovias-adika.jpg" alt="Pronovias ADIKA" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/pronovias/4427-pronovias-adika.html](https://www.readybrides.com/en/pronovias/4427-pronovias-adika.html)

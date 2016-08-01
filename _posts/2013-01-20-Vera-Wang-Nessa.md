@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4136-vera-wang-nessa.html"><img src="http://static.msromantic.com/8214/vera-wang-nessa.jpg" alt="Vera Wang Nessa" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4136-vera-wang-nessa.html"><img src="//static.msromantic.com/8214/vera-wang-nessa.jpg" alt="Vera Wang Nessa" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4136-vera-wang-nessa.html](https://www.readybrides.com/en/vera-wang/4136-vera-wang-nessa.html)

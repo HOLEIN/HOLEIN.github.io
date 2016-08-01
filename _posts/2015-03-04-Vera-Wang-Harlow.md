@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4125-vera-wang-harlow.html"><img src="http://static.msromantic.com/8203/vera-wang-harlow.jpg" alt="Vera Wang Harlow" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4125-vera-wang-harlow.html"><img src="//static.msromantic.com/8203/vera-wang-harlow.jpg" alt="Vera Wang Harlow" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4125-vera-wang-harlow.html](https://www.readybrides.com/en/vera-wang/4125-vera-wang-harlow.html)

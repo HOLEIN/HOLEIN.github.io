@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4096-vera-wang-priscilla.html"><img src="http://static.msromantic.com/8174/vera-wang-priscilla.jpg" alt="Vera Wang PRISCILLA" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4096-vera-wang-priscilla.html"><img src="//static.msromantic.com/8174/vera-wang-priscilla.jpg" alt="Vera Wang PRISCILLA" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4096-vera-wang-priscilla.html](https://www.readybrides.com/en/vera-wang/4096-vera-wang-priscilla.html)

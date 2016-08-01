@@ -9,7 +9,7 @@ tags: [Antonio Riva]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/antonio-riva/6122-antonio-riva-cs226.html"><img src="http://static.msromantic.com/13179/antonio-riva-cs226.jpg" alt="Antonio Riva CS_226" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/antonio-riva/6122-antonio-riva-cs226.html"><img src="//static.msromantic.com/13179/antonio-riva-cs226.jpg" alt="Antonio Riva CS_226" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/antonio-riva/6122-antonio-riva-cs226.html](https://www.readybrides.com/en/antonio-riva/6122-antonio-riva-cs226.html)

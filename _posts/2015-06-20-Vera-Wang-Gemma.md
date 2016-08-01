@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4127-vera-wang-gemma.html"><img src="http://static.msromantic.com/8205/vera-wang-gemma.jpg" alt="Vera Wang Gemma" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4127-vera-wang-gemma.html"><img src="//static.msromantic.com/8205/vera-wang-gemma.jpg" alt="Vera Wang Gemma" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4127-vera-wang-gemma.html](https://www.readybrides.com/en/vera-wang/4127-vera-wang-gemma.html)

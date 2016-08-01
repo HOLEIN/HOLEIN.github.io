@@ -9,7 +9,7 @@ tags: [Sassi Holford,Strapless,Sleeveless]
 Just **$279.99**
 ###   Sleeveless   
 <table><tr><td>BRANDS</td><td>Sassi Holford</td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/sassi-holford/2738-sassi-holford-beatrice-sash.html"><img src="http://static.msromantic.com/4027/sassi-holford-beatrice-sash.jpg" alt="Sassi Holford Beatrice Sash" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/sassi-holford/2738-sassi-holford-beatrice-sash.html"><img src="//static.msromantic.com/4027/sassi-holford-beatrice-sash.jpg" alt="Sassi Holford Beatrice Sash" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/sassi-holford/2738-sassi-holford-beatrice-sash.html](https://www.readybrides.com/en/sassi-holford/2738-sassi-holford-beatrice-sash.html)

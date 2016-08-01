@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4113-vera-wang-diedre.html"><img src="http://static.msromantic.com/8191/vera-wang-diedre.jpg" alt="Vera Wang Diedre" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4113-vera-wang-diedre.html"><img src="//static.msromantic.com/8191/vera-wang-diedre.jpg" alt="Vera Wang Diedre" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4113-vera-wang-diedre.html](https://www.readybrides.com/en/vera-wang/4113-vera-wang-diedre.html)

@@ -9,7 +9,7 @@ tags: [One shoulder]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/one-shoulder/5557-enzoani-greece.html"><img src="http://static.msromantic.com/12040/enzoani-greece.jpg" alt="Enzoani greece" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/one-shoulder/5557-enzoani-greece.html"><img src="//static.msromantic.com/12040/enzoani-greece.jpg" alt="Enzoani greece" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/one-shoulder/5557-enzoani-greece.html"><img src="http://static.msromantic.com/12038/enzoani-greece.jpg" alt="Enzoani greece" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/one-shoulder/5557-enzoani-greece.html"><img src="//static.msromantic.com/12038/enzoani-greece.jpg" alt="Enzoani greece" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/one-shoulder/5557-enzoani-greece.html](https://www.readybrides.com/en/one-shoulder/5557-enzoani-greece.html)

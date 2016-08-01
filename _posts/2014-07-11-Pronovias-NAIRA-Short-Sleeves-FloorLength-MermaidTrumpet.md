@@ -9,7 +9,7 @@ tags: [Pronovias,Mermaid/Trumpet,High Neck,Floor-Length,Short Sleeves]
 Just **$289.99**
 ###   Short Sleeves Floor-Length Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Pronovias</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>High Neck</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/pronovias/4430-pronovias-naira.html"><img src="http://static.msromantic.com/8978/pronovias-naira.jpg" alt="Pronovias NAIRA" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/pronovias/4430-pronovias-naira.html"><img src="//static.msromantic.com/8978/pronovias-naira.jpg" alt="Pronovias NAIRA" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/pronovias/4430-pronovias-naira.html](https://www.readybrides.com/en/pronovias/4430-pronovias-naira.html)

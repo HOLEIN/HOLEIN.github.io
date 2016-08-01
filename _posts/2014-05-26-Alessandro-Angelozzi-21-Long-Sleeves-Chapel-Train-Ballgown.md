@@ -9,7 +9,7 @@ tags: [Alessandro Angelozzi,Alessandro Angelozzi ,Ballgown,Sweetheart,Chapel Tra
 Just **$289.99**
 ###   Long Sleeves Chapel Train Ballgown 
 <table><tr><td>BRANDS</td><td>Alessandro Angelozzi </td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/alessandro-angelozzi/13992-alessandro-angelozzi-21.html"><img src="http://static.msromantic.com/31843/alessandro-angelozzi-21.jpg" alt="Alessandro Angelozzi 21" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/alessandro-angelozzi/13992-alessandro-angelozzi-21.html"><img src="//static.msromantic.com/31843/alessandro-angelozzi-21.jpg" alt="Alessandro Angelozzi 21" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/alessandro-angelozzi/13992-alessandro-angelozzi-21.html](https://www.readybrides.com/en/alessandro-angelozzi/13992-alessandro-angelozzi-21.html)

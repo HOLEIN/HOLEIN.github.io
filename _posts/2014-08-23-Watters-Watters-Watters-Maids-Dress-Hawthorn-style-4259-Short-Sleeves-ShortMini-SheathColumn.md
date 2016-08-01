@@ -9,8 +9,8 @@ tags: [Watters - Watters,Watters,Sheath/Column,Bateau,Short/Mini,Short Sleeves]
 Just **$159.99**
 ###   Short Sleeves Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>Watters</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/watters-watters/14245-watters-dress-hawthorn-style-4259.html"><img src="http://static.msromantic.com/32427/watters-dress-hawthorn-style-4259.jpg" alt="Watters Maids Dress Hawthorn style 4259" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/watters-watters/14245-watters-dress-hawthorn-style-4259.html"><img src="//static.msromantic.com/32427/watters-dress-hawthorn-style-4259.jpg" alt="Watters Maids Dress Hawthorn style 4259" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/watters-watters/14245-watters-dress-hawthorn-style-4259.html"><img src="http://static.msromantic.com/32428/watters-dress-hawthorn-style-4259.jpg" alt="Watters Maids Dress Hawthorn style 4259" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/watters-watters/14245-watters-dress-hawthorn-style-4259.html"><img src="http://static.msromantic.com/32426/watters-dress-hawthorn-style-4259.jpg" alt="Watters Maids Dress Hawthorn style 4259" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/watters-watters/14245-watters-dress-hawthorn-style-4259.html"><img src="//static.msromantic.com/32428/watters-dress-hawthorn-style-4259.jpg" alt="Watters Maids Dress Hawthorn style 4259" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/watters-watters/14245-watters-dress-hawthorn-style-4259.html"><img src="//static.msromantic.com/32426/watters-dress-hawthorn-style-4259.jpg" alt="Watters Maids Dress Hawthorn style 4259" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/watters-watters/14245-watters-dress-hawthorn-style-4259.html](https://www.readybrides.com/en/watters-watters/14245-watters-dress-hawthorn-style-4259.html)

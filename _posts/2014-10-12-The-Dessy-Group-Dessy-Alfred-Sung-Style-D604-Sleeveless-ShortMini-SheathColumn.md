@@ -9,7 +9,7 @@ tags: [The Dessy Group,Sheath/Column,Halter,Short/Mini,Sleeveless]
 Just **$249.99**
 ###   Sleeveless Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>The Dessy Group</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Halter</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/the-dessy-group/13119-the-dessy-group-alfred-sung-style-d604.html"><img src="http://static.msromantic.com/29745/the-dessy-group-alfred-sung-style-d604.jpg" alt="Dessy - Alfred Sung Style D604" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/the-dessy-group/13119-the-dessy-group-alfred-sung-style-d604.html"><img src="//static.msromantic.com/29745/the-dessy-group-alfred-sung-style-d604.jpg" alt="Dessy - Alfred Sung Style D604" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/the-dessy-group/13119-the-dessy-group-alfred-sung-style-d604.html"><img src="http://static.msromantic.com/29744/the-dessy-group-alfred-sung-style-d604.jpg" alt="Dessy - Alfred Sung Style D604" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/the-dessy-group/13119-the-dessy-group-alfred-sung-style-d604.html"><img src="//static.msromantic.com/29744/the-dessy-group-alfred-sung-style-d604.jpg" alt="Dessy - Alfred Sung Style D604" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/the-dessy-group/13119-the-dessy-group-alfred-sung-style-d604.html](https://www.readybrides.com/en/the-dessy-group/13119-the-dessy-group-alfred-sung-style-d604.html)

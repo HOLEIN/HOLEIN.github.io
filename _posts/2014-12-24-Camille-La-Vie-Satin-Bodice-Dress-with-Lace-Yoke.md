@@ -9,7 +9,7 @@ tags: [Camille La Vie]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/camille-la-vie/10294-camille-la-vie-satin-bodice-dress-with-lace-yoke.html"><img src="http://static.msromantic.com//camille-la-vie-satin-bodice-dress-with-lace-yoke.jpg" alt="Camille La Vie Satin Bodice Dress with Lace Yoke" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/camille-la-vie/10294-camille-la-vie-satin-bodice-dress-with-lace-yoke.html"><img src="//static.msromantic.com//camille-la-vie-satin-bodice-dress-with-lace-yoke.jpg" alt="Camille La Vie Satin Bodice Dress with Lace Yoke" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/camille-la-vie/10294-camille-la-vie-satin-bodice-dress-with-lace-yoke.html](https://www.readybrides.com/en/camille-la-vie/10294-camille-la-vie-satin-bodice-dress-with-lace-yoke.html)

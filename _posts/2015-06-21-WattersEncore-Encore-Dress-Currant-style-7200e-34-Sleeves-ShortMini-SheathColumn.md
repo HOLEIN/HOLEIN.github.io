@@ -9,8 +9,8 @@ tags: [Watters-Encore,Encore,Sheath/Column,Bateau,Short/Mini,3/4 Sleeves]
 Just **$239.99**
 ###   3/4 Sleeves Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>Encore</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>3/4 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/encore/14414-watters-dress-currant-style-7200e.html"><img src="http://static.msromantic.com/32741/watters-dress-currant-style-7200e.jpg" alt="Encore Dress Currant style 7200e" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/encore/14414-watters-dress-currant-style-7200e.html"><img src="//static.msromantic.com/32741/watters-dress-currant-style-7200e.jpg" alt="Encore Dress Currant style 7200e" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/encore/14414-watters-dress-currant-style-7200e.html"><img src="http://static.msromantic.com/32742/watters-dress-currant-style-7200e.jpg" alt="Encore Dress Currant style 7200e" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/encore/14414-watters-dress-currant-style-7200e.html"><img src="http://static.msromantic.com/32740/watters-dress-currant-style-7200e.jpg" alt="Encore Dress Currant style 7200e" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/encore/14414-watters-dress-currant-style-7200e.html"><img src="//static.msromantic.com/32742/watters-dress-currant-style-7200e.jpg" alt="Encore Dress Currant style 7200e" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/encore/14414-watters-dress-currant-style-7200e.html"><img src="//static.msromantic.com/32740/watters-dress-currant-style-7200e.jpg" alt="Encore Dress Currant style 7200e" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/encore/14414-watters-dress-currant-style-7200e.html](https://www.readybrides.com/en/encore/14414-watters-dress-currant-style-7200e.html)

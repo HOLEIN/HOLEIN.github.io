@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4139-vera-wang-nora.html"><img src="http://static.msromantic.com/8217/vera-wang-nora.jpg" alt="Vera Wang Nora" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4139-vera-wang-nora.html"><img src="//static.msromantic.com/8217/vera-wang-nora.jpg" alt="Vera Wang Nora" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4139-vera-wang-nora.html](https://www.readybrides.com/en/vera-wang/4139-vera-wang-nora.html)

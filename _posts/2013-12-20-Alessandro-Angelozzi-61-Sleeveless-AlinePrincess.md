@@ -9,7 +9,7 @@ tags: [Alessandro Angelozzi,Alessandro Angelozzi ,Aline/Princess ,Strapless,Slee
 Just **$309.99**
 ###   Sleeveless  Aline/Princess  
 <table><tr><td>BRANDS</td><td>Alessandro Angelozzi </td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/alessandro-angelozzi/14032-alessandro-angelozzi-61.html"><img src="http://static.msromantic.com/31883/alessandro-angelozzi-61.jpg" alt="Alessandro Angelozzi 61" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/alessandro-angelozzi/14032-alessandro-angelozzi-61.html"><img src="//static.msromantic.com/31883/alessandro-angelozzi-61.jpg" alt="Alessandro Angelozzi 61" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/alessandro-angelozzi/14032-alessandro-angelozzi-61.html](https://www.readybrides.com/en/alessandro-angelozzi/14032-alessandro-angelozzi-61.html)

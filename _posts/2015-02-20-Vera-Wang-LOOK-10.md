@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4086-vera-wang-look-10.html"><img src="http://static.msromantic.com/8164/vera-wang-look-10.jpg" alt="Vera Wang LOOK 10" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4086-vera-wang-look-10.html"><img src="//static.msromantic.com/8164/vera-wang-look-10.jpg" alt="Vera Wang LOOK 10" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4086-vera-wang-look-10.html](https://www.readybrides.com/en/vera-wang/4086-vera-wang-look-10.html)

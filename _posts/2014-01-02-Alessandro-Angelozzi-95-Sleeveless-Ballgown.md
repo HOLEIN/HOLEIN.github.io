@@ -9,7 +9,7 @@ tags: [Alessandro Angelozzi,Alessandro Angelozzi ,Ballgown,Strapless,Sleeveless]
 Just **$309.99**
 ###   Sleeveless  Ballgown 
 <table><tr><td>BRANDS</td><td>Alessandro Angelozzi </td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/alessandro-angelozzi/14066-alessandro-angelozzi-95.html"><img src="http://static.msromantic.com/31917/alessandro-angelozzi-95.jpg" alt="Alessandro Angelozzi 95" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/alessandro-angelozzi/14066-alessandro-angelozzi-95.html"><img src="//static.msromantic.com/31917/alessandro-angelozzi-95.jpg" alt="Alessandro Angelozzi 95" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/alessandro-angelozzi/14066-alessandro-angelozzi-95.html](https://www.readybrides.com/en/alessandro-angelozzi/14066-alessandro-angelozzi-95.html)

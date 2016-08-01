@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4100-vera-wang-odessa.html"><img src="http://static.msromantic.com/8178/vera-wang-odessa.jpg" alt="Vera Wang Odessa" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4100-vera-wang-odessa.html"><img src="//static.msromantic.com/8178/vera-wang-odessa.jpg" alt="Vera Wang Odessa" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4100-vera-wang-odessa.html](https://www.readybrides.com/en/vera-wang/4100-vera-wang-odessa.html)

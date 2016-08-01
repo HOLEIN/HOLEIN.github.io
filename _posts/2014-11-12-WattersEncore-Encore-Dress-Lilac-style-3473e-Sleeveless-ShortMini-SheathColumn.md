@@ -9,7 +9,7 @@ tags: [Watters-Encore,Encore,Sheath/Column,V-neck,Short/Mini,Sleeveless]
 Just **$259.99**
 ###   Sleeveless Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>Encore</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/encore/14456-watters-dress-lilac-style-3473e.html"><img src="http://static.msromantic.com/32824/watters-dress-lilac-style-3473e.jpg" alt="Encore  Dress Lilac style 3473e" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/encore/14456-watters-dress-lilac-style-3473e.html"><img src="//static.msromantic.com/32824/watters-dress-lilac-style-3473e.jpg" alt="Encore  Dress Lilac style 3473e" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/encore/14456-watters-dress-lilac-style-3473e.html](https://www.readybrides.com/en/encore/14456-watters-dress-lilac-style-3473e.html)

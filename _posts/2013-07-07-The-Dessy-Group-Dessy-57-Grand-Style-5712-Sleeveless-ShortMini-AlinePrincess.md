@@ -9,7 +9,7 @@ tags: [The Dessy Group,Aline/Princess ,Bateau,Short/Mini,Sleeveless]
 Just **$226.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>The Dessy Group</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/the-dessy-group/12883-the-dessy-group-57-grand-style-5712.html"><img src="http://static.msromantic.com/29273/the-dessy-group-57-grand-style-5712.jpg" alt="Dessy - 57 Grand Style 5712" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/the-dessy-group/12883-the-dessy-group-57-grand-style-5712.html"><img src="//static.msromantic.com/29273/the-dessy-group-57-grand-style-5712.jpg" alt="Dessy - 57 Grand Style 5712" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/the-dessy-group/12883-the-dessy-group-57-grand-style-5712.html"><img src="http://static.msromantic.com/29272/the-dessy-group-57-grand-style-5712.jpg" alt="Dessy - 57 Grand Style 5712" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/the-dessy-group/12883-the-dessy-group-57-grand-style-5712.html"><img src="//static.msromantic.com/29272/the-dessy-group-57-grand-style-5712.jpg" alt="Dessy - 57 Grand Style 5712" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/the-dessy-group/12883-the-dessy-group-57-grand-style-5712.html](https://www.readybrides.com/en/the-dessy-group/12883-the-dessy-group-57-grand-style-5712.html)

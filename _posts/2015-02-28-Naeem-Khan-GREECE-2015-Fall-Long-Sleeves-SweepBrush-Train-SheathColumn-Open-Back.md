@@ -9,7 +9,7 @@ tags: [Naeem Khan,Sheath/Column,Open Back,Illusion,Sweep/Brush Train,Long Sleeve
 Just **$259.99**
 ### 2015 Fall Long Sleeves Sweep/Brush Train Sheath/Column Open Back
 <table><tr><td>BRANDS</td><td>Naeem Khan</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Trend</td><td>Open Back</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr><tr><td>Years</td><td>2015</td></tr><tr><td>Season</td><td>Fall</td></tr></table>
-<a href="https://www.readybrides.com/en/naeem-khan/9940-naeem-khan-greece.html"><img src="http://static.msromantic.com/22727/naeem-khan-greece.jpg" alt="Naeem Khan GREECE" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/naeem-khan/9940-naeem-khan-greece.html"><img src="//static.msromantic.com/22727/naeem-khan-greece.jpg" alt="Naeem Khan GREECE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/naeem-khan/9940-naeem-khan-greece.html"><img src="http://static.msromantic.com/22726/naeem-khan-greece.jpg" alt="Naeem Khan GREECE" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/naeem-khan/9940-naeem-khan-greece.html"><img src="//static.msromantic.com/22726/naeem-khan-greece.jpg" alt="Naeem Khan GREECE" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/naeem-khan/9940-naeem-khan-greece.html](https://www.readybrides.com/en/naeem-khan/9940-naeem-khan-greece.html)

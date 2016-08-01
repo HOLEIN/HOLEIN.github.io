@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4130-vera-wang-leda.html"><img src="http://static.msromantic.com/8208/vera-wang-leda.jpg" alt="Vera Wang Leda" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4130-vera-wang-leda.html"><img src="//static.msromantic.com/8208/vera-wang-leda.jpg" alt="Vera Wang Leda" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4130-vera-wang-leda.html](https://www.readybrides.com/en/vera-wang/4130-vera-wang-leda.html)

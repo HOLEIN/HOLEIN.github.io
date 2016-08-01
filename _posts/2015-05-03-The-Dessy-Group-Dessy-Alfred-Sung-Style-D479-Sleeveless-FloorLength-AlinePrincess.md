@@ -9,7 +9,7 @@ tags: [The Dessy Group,Aline/Princess ,High Neck,Floor-Length,Sleeveless]
 Just **$259.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>The Dessy Group</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>High Neck</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/the-dessy-group/13213-the-dessy-group-alfred-sung-style-d479.html"><img src="http://static.msromantic.com/29933/the-dessy-group-alfred-sung-style-d479.jpg" alt="Dessy - Alfred Sung Style D479" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/the-dessy-group/13213-the-dessy-group-alfred-sung-style-d479.html"><img src="//static.msromantic.com/29933/the-dessy-group-alfred-sung-style-d479.jpg" alt="Dessy - Alfred Sung Style D479" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/the-dessy-group/13213-the-dessy-group-alfred-sung-style-d479.html"><img src="http://static.msromantic.com/29932/the-dessy-group-alfred-sung-style-d479.jpg" alt="Dessy - Alfred Sung Style D479" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/the-dessy-group/13213-the-dessy-group-alfred-sung-style-d479.html"><img src="//static.msromantic.com/29932/the-dessy-group-alfred-sung-style-d479.jpg" alt="Dessy - Alfred Sung Style D479" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/the-dessy-group/13213-the-dessy-group-alfred-sung-style-d479.html](https://www.readybrides.com/en/the-dessy-group/13213-the-dessy-group-alfred-sung-style-d479.html)

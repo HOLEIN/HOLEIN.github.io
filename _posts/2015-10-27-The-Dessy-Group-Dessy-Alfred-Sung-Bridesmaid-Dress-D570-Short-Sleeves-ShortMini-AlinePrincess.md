@@ -9,7 +9,7 @@ tags: [The Dessy Group,Aline/Princess ,Bateau,Short/Mini,Short Sleeves]
 Just **$259.99**
 ###   Short Sleeves Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>The Dessy Group</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/the-dessy-group/13139-the-dessy-group-alfred-sung-bridesmaid-dress-d570.html"><img src="http://static.msromantic.com/29785/the-dessy-group-alfred-sung-bridesmaid-dress-d570.jpg" alt="Dessy - Alfred Sung Bridesmaid Dress D570" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/the-dessy-group/13139-the-dessy-group-alfred-sung-bridesmaid-dress-d570.html"><img src="//static.msromantic.com/29785/the-dessy-group-alfred-sung-bridesmaid-dress-d570.jpg" alt="Dessy - Alfred Sung Bridesmaid Dress D570" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/the-dessy-group/13139-the-dessy-group-alfred-sung-bridesmaid-dress-d570.html"><img src="http://static.msromantic.com/29784/the-dessy-group-alfred-sung-bridesmaid-dress-d570.jpg" alt="Dessy - Alfred Sung Bridesmaid Dress D570" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/the-dessy-group/13139-the-dessy-group-alfred-sung-bridesmaid-dress-d570.html"><img src="//static.msromantic.com/29784/the-dessy-group-alfred-sung-bridesmaid-dress-d570.jpg" alt="Dessy - Alfred Sung Bridesmaid Dress D570" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/the-dessy-group/13139-the-dessy-group-alfred-sung-bridesmaid-dress-d570.html](https://www.readybrides.com/en/the-dessy-group/13139-the-dessy-group-alfred-sung-bridesmaid-dress-d570.html)

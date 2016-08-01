@@ -9,7 +9,7 @@ tags: [Antonio Riva]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/antonio-riva/6314-antonio-riva-gippy.html"><img src="http://static.msromantic.com/13371/antonio-riva-gippy.jpg" alt="Antonio Riva Gippy" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/antonio-riva/6314-antonio-riva-gippy.html"><img src="//static.msromantic.com/13371/antonio-riva-gippy.jpg" alt="Antonio Riva Gippy" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/antonio-riva/6314-antonio-riva-gippy.html](https://www.readybrides.com/en/antonio-riva/6314-antonio-riva-gippy.html)

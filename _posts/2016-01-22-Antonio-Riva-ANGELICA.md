@@ -9,7 +9,7 @@ tags: [Antonio Riva]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/antonio-riva/6308-antonio-riva-angelica.html"><img src="http://static.msromantic.com/13365/antonio-riva-angelica.jpg" alt="Antonio Riva ANGELICA" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/antonio-riva/6308-antonio-riva-angelica.html"><img src="//static.msromantic.com/13365/antonio-riva-angelica.jpg" alt="Antonio Riva ANGELICA" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/antonio-riva/6308-antonio-riva-angelica.html](https://www.readybrides.com/en/antonio-riva/6308-antonio-riva-angelica.html)

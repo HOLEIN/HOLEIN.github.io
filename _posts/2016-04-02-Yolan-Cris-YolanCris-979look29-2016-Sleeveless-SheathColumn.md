@@ -9,7 +9,7 @@ tags: [Yolan Cris,Sheath/Column,Jewel,Sleeveless,2016]
 Just **$279.99**
 ### 2016  Sleeveless  Sheath/Column 
 <table><tr><td>BRANDS</td><td>Yolan Cris</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Jewel</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr><tr><td>Years</td><td>2016</td></tr></table>
-<a href="https://www.readybrides.com/en/yolan-cris/13867-yolancris-979-look-29.html"><img src="http://static.msromantic.com/31718/yolancris-979-look-29.jpg" alt="YolanCris  979-look-29" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/yolan-cris/13867-yolancris-979-look-29.html"><img src="//static.msromantic.com/31718/yolancris-979-look-29.jpg" alt="YolanCris  979-look-29" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/yolan-cris/13867-yolancris-979-look-29.html](https://www.readybrides.com/en/yolan-cris/13867-yolancris-979-look-29.html)

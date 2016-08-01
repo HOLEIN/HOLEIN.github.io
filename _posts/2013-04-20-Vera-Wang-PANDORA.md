@@ -9,7 +9,7 @@ tags: [Vera Wang]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vera-wang/4093-vera-wang-pandora.html"><img src="http://static.msromantic.com/8171/vera-wang-pandora.jpg" alt="Vera Wang PANDORA" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/vera-wang/4093-vera-wang-pandora.html"><img src="//static.msromantic.com/8171/vera-wang-pandora.jpg" alt="Vera Wang PANDORA" style="width:100%;" /></a>
 
 <!-- break -->
 Buy it: [https://www.readybrides.com/en/vera-wang/4093-vera-wang-pandora.html](https://www.readybrides.com/en/vera-wang/4093-vera-wang-pandora.html)

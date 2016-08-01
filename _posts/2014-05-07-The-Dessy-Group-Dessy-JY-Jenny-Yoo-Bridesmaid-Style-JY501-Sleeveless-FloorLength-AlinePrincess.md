@@ -9,7 +9,7 @@ tags: [The Dessy Group,Aline/Princess ,Straps,Floor-Length,Sleeveless]
 Just **$189.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>The Dessy Group</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Straps</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/the-dessy-group/12778-the-dessy-group-jy-jenny-yoo-bridesmaid-style-jy501.html"><img src="http://static.msromantic.com/29063/the-dessy-group-jy-jenny-yoo-bridesmaid-style-jy501.jpg" alt="Dessy - JY Jenny Yoo Bridesmaid Style JY501" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/the-dessy-group/12778-the-dessy-group-jy-jenny-yoo-bridesmaid-style-jy501.html"><img src="//static.msromantic.com/29063/the-dessy-group-jy-jenny-yoo-bridesmaid-style-jy501.jpg" alt="Dessy - JY Jenny Yoo Bridesmaid Style JY501" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/the-dessy-group/12778-the-dessy-group-jy-jenny-yoo-bridesmaid-style-jy501.html"><img src="http://static.msromantic.com/29062/the-dessy-group-jy-jenny-yoo-bridesmaid-style-jy501.jpg" alt="Dessy - JY Jenny Yoo Bridesmaid Style JY501" style="width:100%;" /></a>
+<!-- break --><a href="https://www.readybrides.com/en/the-dessy-group/12778-the-dessy-group-jy-jenny-yoo-bridesmaid-style-jy501.html"><img src="//static.msromantic.com/29062/the-dessy-group-jy-jenny-yoo-bridesmaid-style-jy501.jpg" alt="Dessy - JY Jenny Yoo Bridesmaid Style JY501" style="width:100%;" /></a>
 Buy it: [https://www.readybrides.com/en/the-dessy-group/12778-the-dessy-group-jy-jenny-yoo-bridesmaid-style-jy501.html](https://www.readybrides.com/en/the-dessy-group/12778-the-dessy-group-jy-jenny-yoo-bridesmaid-style-jy501.html)
