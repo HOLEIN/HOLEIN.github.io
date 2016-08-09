@@ -30,6 +30,20 @@ footer-links:
   stackoverflow: # your stackoverflow profile, e.g. "users/50476/bart-kiers"
   youtube: # channel/<your_long_string> or user/<user-name>
 
+related-sites:
+- holein.github.io
+- variousweddingdress.github.io
+- colorfulpromdress.github.io
+- bonnyweddingdress.github.io
+- charmingbridaldress.github.io
+- weddingstyledress.github.io
+- sexyeveningdress.github.io
+- uniqueproms.github.io
+- compellingdress.github.io
+- exquisiteweddings.github.io
+- glamorouspartydress.github.io
+- prettycelebritydress.github.io 
+
 # Enter your Google Analytics web tracking code (e.g. UA-2110908-2) to activate tracking
 google_analytics:
 
