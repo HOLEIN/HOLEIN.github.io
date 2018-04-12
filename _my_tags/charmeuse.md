@@ -1,4 +1,0 @@
----
-slug: charmeuse
-name: Charmeuse
----
